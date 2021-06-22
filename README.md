@@ -3,4 +3,4 @@
 
 This Game will make you rage! 🤬 🤬 🤬 🤬 🤬 
 
-Rage Here: 
+Rage Here:https://awesomcoder100.github.io/Chain-Reaction/
